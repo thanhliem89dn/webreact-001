@@ -14,12 +14,3 @@ sdfdsfds
 fsdfsdfsdf
 sdfdsfdsf
 sdfdsfds
-
-adfdsfsa
-asdfsadfasdf
-asdfsadfasdf
-asdfdasfdsa
-asdfadsfasd
-fadsfadsfsdcvcc
-c3113123
-123213213
